@@ -1,0 +1,2 @@
+# vezidev
+My tech blog
