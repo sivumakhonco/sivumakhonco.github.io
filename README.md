@@ -1,2 +1,2 @@
-# vezidev
-My tech blog
+# codersivu
+Sivu Makhonco software development blog
