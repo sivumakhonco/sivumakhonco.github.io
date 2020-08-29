@@ -1,1 +1,1 @@
-Molweni, uyabulisa uGcwanini, uSalakulandelwa, uVezi, uMancoba.
+Molweni, uyabulisa uGcwanini, uSalakulandelwa, uVezi, uMancoba
